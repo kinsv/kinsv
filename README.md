@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kinsv, a sad 14 year old
+- 👀 I’m interested in python and HTML and coding discord bots
+- 🥹 I’m currently learning higher python
+- 🫡 I’m looking to collaborate on fun and challenging apps
+- 🫥 How to reach me: discord (kinsv#9340)
